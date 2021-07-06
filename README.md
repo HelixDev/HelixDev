@@ -1,4 +1,4 @@
-### Hi there, I'm Julia!
+### Hi there, I'm 一千花!
 </details>
 <br>
 Want to Contact me? Use my <a href="https://discord.com/users/637753470161780786">DISCORD!</a>
